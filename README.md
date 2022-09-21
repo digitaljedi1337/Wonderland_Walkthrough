@@ -1,1 +1,1 @@
-Click download to view walkthrough.
+Click on pdf then download to view walkthrough.
